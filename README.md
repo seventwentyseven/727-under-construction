@@ -4,4 +4,4 @@ This is simply a website to show when [Seven Twenty Seven](https://seventwentyse
 
 Background image source: Screenshot from game [Stray](https://store.steampowered.com/app/1332010/Stray/)
 
-Got it from this [Reddit r/wallpaper post](https://www.reddit.com/r/wallpaper/comments/1bn556b/stray_game_wallpapers_3024_1964/)
+Got it from this [Reddit r/wallpaper post](https://www.reddit.com/r/wallpaper/comments/18pbecc/1920_x_1080_some_screenshots_from_the_game_stray/)
